@@ -9,3 +9,4 @@ My main goal is to become a **doctor** 🩺
 ## Goals
 - Study hard and reach medicine
 - Build projects and learn new skills along the way
+i live in algeria bordj bou arreridj
